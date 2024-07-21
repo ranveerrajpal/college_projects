@@ -1,2 +1,2 @@
-# college_projects
-All college projects are uploaded in this repository 
+# RANVEER RAJPAL
+# HI NAME IS RANVEER SINGH AND I AM PURSUING IT IN GNDEC 
